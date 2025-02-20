@@ -8,7 +8,7 @@ I'm an English Teacher by trade but heavily interested in mainly building front-
 
 🧠 I'm currently learning about computer science.
 
-📫 You can reach me by simply e-mailing.
+📫 You can reach me by simply e-mailing me at gokacinlar@outlook.com
 
 ## 🛠 Skills
 
